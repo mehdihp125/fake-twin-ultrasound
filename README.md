@@ -1,5 +1,5 @@
 
-# fake twin ultrasound Generator - AI ( Free )
+# Fake Twin Ultrasound Generator - AI ( Free )
 
 🔥 Its Free
 
