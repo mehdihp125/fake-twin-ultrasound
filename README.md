@@ -14,7 +14,7 @@
 ### 📌How To Use :
 
 
-Step 1 : Go to this url :  <a href="https://stfly.xyz/63W7b">Click Here</a>
+Step 1 : Go to this url :  https://pikiguide.com/fake-twin-ultrasound/
  
 
 
