@@ -35,9 +35,12 @@ Step 3 : Finally click generate fake ultrasound .
 ### 📌Note :
 
 A fake twin ultrasound is a manipulated image created using artificial intelligence (AI). This fake image created with the intention of playing a prank on someone. The main purpose of these fake ultrasounds is just for fun. You can create these images for free using this tool. All you need is a name and a date.
+
 Using a fake pregnancy ultrasound to annoy others is against the principles of honesty. It undermines trust and can damage relationships.Fake pregnancy ultrasounds can cause stress. This can have long-term psychological effects on the person who has been deceived.Presenting a fake ultrasound as real misrepresents medical information. It can lead to unnecessary worries and affect important life choices.
+
 Using fake pregnancy ultrasounds can cause your family to change their behavior and make decisions based on false information. This can lead to tension in relationships.
 Pay attention to moral responsibility towards others. Deceptive actions with fake pregnancy ultrasounds can cause psychological harm to others.
+
 
 Fraud is a serious offence, and providing a fake pregnancy ultrasound with the intention of deceiving others is one of them.
 
