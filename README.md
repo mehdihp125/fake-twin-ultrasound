@@ -14,8 +14,8 @@
 ### 📌How To Use :
 
 
-Step 1 : Go to this url
-https://pikiguide.com/fake-twin-ultrasound/
+Step 1 : Go to this url :  <a href="https://stfly.xyz/63W7b">Click Here</a>
+ 
 
 
 Step 2 : Add your name and your desired date here. Then Choose single or twin baby ultrasound.
